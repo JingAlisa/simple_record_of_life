@@ -1,0 +1,1 @@
+This repository  is in order to record my feeling or opinions about what I learned, read or saw. 
